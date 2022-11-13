@@ -1,1 +1,1 @@
-# Codingan-Cobol
+Lisensi By http://farisrasyid.my.id
